@@ -10,9 +10,9 @@ Deneme bonusu veren siteler, 2025 yılında online bahis dünyasında önemli bi
 
 ## 2025 Yılında En Çok Deneme Bonusu Veren Siteler
 
-<a href="https://clbanners6.com/_T71CeNNXRHMA3htWIQDrw5Rmpuyl6pta/1/" title="%DESCRIPTION%%" target="_blank">
+<p><a href="https://clbanners6.com/_T71CeNNXRHMA3htWIQDrw5Rmpuyl6pta/1/" title="%DESCRIPTION%%" target="_blank">
   <img src="https://media.commissionlounge.com/uploads/336x280_cm_welcome_offer.gif" width="%WIDTH%%" height="%HEIGHT%%" border="0" alt="%ALT_TEXT%%" />
-</a>
+</a></p>
 
 2025 yılında, deneme bonusu veren birçok platform bulunmaktadır. Ancak, bazı siteler sundukları avantajlar ve kullanıcı deneyimleri ile öne çıkmaktadır. İşte en çok deneme bonusu veren siteler:
 
